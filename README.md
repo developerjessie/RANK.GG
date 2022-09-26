@@ -1,1 +1,1 @@
-# RANK.gg
+# RANK.GG
